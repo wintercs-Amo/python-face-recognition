@@ -5,7 +5,7 @@
 1.五官端正、不被遮挡、无刘海   
 2.背景尽量纯色、黑白为最佳   
 3.识别效率属实不太高=.=    
-还有一个包太大给个链接
-https://pan.baidu.com/s/1lsO2RNRLZYvd5NwQjMlwDg
+还有一个包太大给个链接  
+https://pan.baidu.com/s/1lsO2RNRLZYvd5NwQjMlwDg  
 0909
 
